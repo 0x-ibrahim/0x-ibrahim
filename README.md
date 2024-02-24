@@ -12,14 +12,14 @@ I am Ibrahim Onuche Umar, a technology researcher and educator.
   [Newsletter](https://substack.com/@0xibrahim)
 
   [Podcast](https://podcasters.spotify.com/pod/show/ibrahim756)
-
+  
+    [YouTube](https://www.youtube.com/@0xIbrahim)
 - **Connect with Me**:
 
    [Twitter](https://twitter.com/_0xIbrahim)
 
   [LinkedIn](https://www.linkedin.com/in/hello-onuche-hi/)
 
-    [YouTube](https://www.youtube.com/@0xIbrahim)
 
 - **Hire Me**
 
